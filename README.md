@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chingreodica.
-- 👀 I’m interested in entrepreneurship.
+- 👀 I’m interested in AI Chatbots and Virtual Assistants.
 - 🌱 I’m currently learning multimedia studies at UPOU.
 - 💞️ I’m looking to collaborate on creating a website project.
 - 📫 How to reach me: rvreodica2@up.edu.ph
